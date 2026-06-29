@@ -1,4 +1,4 @@
-# 
+# Gratuito Gemini Spark plantillas. Con ajuste fino y control de versiones — optimizado para el máximo rendimiento y eficiencia.
 
 
 
